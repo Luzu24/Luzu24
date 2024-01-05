@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Luzu24
+- 👀 I’m interested in python
+- 🌱 I’m currently learning pyhon
+- 💞️ I’m looking for discord stuff (tokens and auto spammer)
+- 📫 How to reach me: discord: @chuck_norris_lol
